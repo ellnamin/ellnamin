@@ -1,4 +1,3 @@
-- 👋 Hi, I’m Nazanin
 - 👀 I’m interested in science and understanding
 - 🌱 I’m currently learning how to be myself ;)
 - 📫 How to reach me: nazanin.salehi7678@gmail.com
