@@ -1,6 +1,6 @@
 - 👀 I’m interested in science and understanding
 - 🌱 I’m currently learning how to be myself ;)
-- 📫 How to reach me: nazanin.salehi7678@gmail.com
+- 📫 How to reach me: ellnamin.business@gmail.com
 <!--- - 💞️ I’m looking to collaborate on ... --->
 <!--- - 😄 Pronouns: ... --->
 <!--- - ⚡ Fun fact: ... --->
